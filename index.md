@@ -4,7 +4,7 @@ We're working on building the rest of the site now!
 
 ### Links
 
-Check out our [Facebook](facebook.timesquaresshop.com) and [Twitter](twitter.timesquaresshop.com)
+Check out our [Facebook](https://facebook.timesquaresshop.com) and [Twitter](https://twitter.timesquaresshop.com)
 
 ### Support or Contact
 
